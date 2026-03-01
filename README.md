@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AAMC010512HCCLYRA1
+AAMC010512HCCLYRA1
